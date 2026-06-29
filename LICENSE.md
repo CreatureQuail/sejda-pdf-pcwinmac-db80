@@ -1,4 +1,4 @@
-# 
+# Turbo Sejda PDF plantillas para Mac OS | Inteligente Sejda PDF plantillas para PC Windows. Con fusión de PDF y gestión de nóminas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
